@@ -1,2 +1,0 @@
-# Jean
-Primeiro dia.
